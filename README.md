@@ -2,5 +2,5 @@
 
 Founder/CEO @ [Documize](https://www.documize.com)
 
-Previously founded [Countersoft](https://www.countersoft.com)
+Founder/Product @ [Countersoft](https://www.countersoft.com)
 
