@@ -1,6 +1,4 @@
 # Work
 
-Founder/CEO @ [Documize](https://www.documize.com)
-
-Founder/Product @ [Countersoft](https://www.countersoft.com)
+Founder [Documize](https://www.documize.com) [Countersoft](https://www.countersoft.com)
 
