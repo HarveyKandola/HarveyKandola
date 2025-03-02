@@ -1,4 +1,4 @@
 # Work
 
-Founder [Documize](https://www.documize.com) [Countersoft](https://www.countersoft.com)
+Founder @ [Countersoft](https://www.countersoft.com) [Documize](https://www.documize.com) [Ekso](https://www.ekso.app)
 
